@@ -6,3 +6,6 @@ what if i was transfem maya fey from ace attorney like im just saying but what i
 
 
 Shes so cute omg i love her
+
+
+![image](https://github.com/user-attachments/assets/644c8fdd-4d4e-4129-ad43-dd9c383242cb) CHERIE.
