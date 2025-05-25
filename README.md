@@ -11,7 +11,7 @@ what if i was transfem maya fey from ace attorney like im just saying but what i
 
 byi: i play ponytown a lot outside of school, that's when i'm mostly active! i don't go up to people i kinda just wait for people to come to me HELPP i'm super shy too so sorry if i'm awkward or i don't really seem interested if we're having a convo, it's not your fault at all!! i'm mostly with my party, especially with lea, vin and moon! lea is my boyfriend and i love him so much and we usually spend most of our time together! i love my friends just as much, though!! i'm mostly by the genshin or project sekai area, RARELY the danganronpa area anymore. sorry! please don't use tonetags on me unless i say you can. <br>
 
-dni: overly sexual GROSS. people under 13 years old, old friends unless we've talked and i've stated i am fine with you and we're on good terms, people who say they hope my boyfriend and i break up so that they can get with him...? (this is aimed at someone you know who you are LMAOO.), MOST arcane fans (i love you but some of you oh my lordy please No), people who hate on interests, people who joke about really sensitive topics, BANDORI HATERS! kidding, people who hate on my favorite/comfort characters (misa amane, rachel gardner, homura akemi, ema skye, arei nageishi, etc!)
+dni: overly sexual GROSS. people under 13 years old, old friends unless we've talked and i've stated i am fine with you and we're on good terms, people who say they hope my boyfriend and i break up so that they can get with him...? (this is aimed at someone you know who you are LMAOO.), death note fans who literally mischaracterize all the characters, most drdt fans unless we're already friends, ponytown drama
 <br>
 
 
