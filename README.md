@@ -4,9 +4,9 @@ what if i was transfem maya fey from ace attorney like im just saying but what i
 
 
 <div align="center">
-  <img width = "50%" src="https://64.media.tumblr.com/1ceed813d2b131154b21627797d9e4ed/2dda05d70e80ecdd-69/s2048x3072/7c9e71dc287da2897bfb2487da1d265e7bec2b57.pnj">
+  <img width = "50%" src="https://i.pinimg.com/736x/13/e2/7e/13e27e353824d35487bcf891f6afe791.jpg">
 </div>
-<div align="center">art by ninhawesome on tumblr!!</div>
+<div align="center">ILYSM JULIET</div>
 <br>
 
 byi: i play ponytown a lot outside of school, that's when i'm mostly active! i don't go up to people i kinda just wait for people to come to me HELPP i'm super shy too so sorry if i'm awkward or i don't really seem interested if we're having a convo, it's not your fault at all!! i'm mostly with my party, especially with lea, vin and moon! lea is my boyfriend and i love him so much and we usually spend most of our time together! i love my friends just as much, though!! i'm mostly by the genshin or project sekai area, RARELY the danganronpa area anymore. sorry! please don't use tonetags on me unless i say you can. <br>
