@@ -1,4 +1,4 @@
-PLS FOLLOW ME ON UMA MUSUME. (eng server) - 510 577 687 779
+PLS FOLLOW ME ON UMAMUSUME. (eng server) - 510 577 687 779
 
 ![image](https://github.com/user-attachments/assets/c86e8576-28f8-4b5b-9a39-cde07207b485)
 what if i was transfem maya fey from ace attorney like im just saying but what if i was
@@ -11,9 +11,9 @@ what if i was transfem maya fey from ace attorney like im just saying but what i
 <div align="center">too lazy to constantly change my theme bru</div>
 <br>
 
-byi: i play ponytown a lot outside of school, that's when i'm mostly active! i don't go up to people i kinda just wait for people to come to me HELPP i'm super shy too so sorry if i'm awkward or i don't really seem interested if we're having a convo, it's not your fault at all!! i'm mostly with my party, especially with lea, vin and moon! lea is my boyfriend and i love him so much and we usually spend most of our time together! i love my friends just as much, though!! i'm mostly by the genshin or project sekai area, RARELY the danganronpa area anymore. sorry! please don't use tonetags on me unless i say you can. <br>
+byi: i'm really shy/awkward and it might take a bit to get me out of my comfort zone! i don't talk much with other people unless i get talked to first, sorry. i'm mainly lurking at the alien stage, project sekai, or genshin area! or i could just be in a totally random spot. i'm mainly with my friends or boyfriend, and i hang out at my partys island a lot. i love rhythm games like bang dream/bandori and project sekai. i also love games like danganronpa and your turn to die. my favorite game right now though currently is umamusume. i have a lot more interests and i'll probably make a rentry dedicating it to all of the ones i can think of, but if you name something i Might know it. thanks for reading!  <br>
 
-dni: overly sexual GROSS. people under 13 years old, old friends unless we've talked and i've stated i am fine with you and we're on good terms, people who say they hope my boyfriend and i break up so that they can get with him...? (this is aimed at someone you know who you are LMAOO.), death note fans who literally mischaracterize all the characters, most drdt fans unless we're already friends, ponytown drama
+dni: basic dni criteria, rude/mean people, overly sexual people, under 13, Most danganronpa/hoyoverse fans but i'll still int anyways lowkey BYE, ponytown drama, people who don't like my friends or are on bad terms with them, please... don't have shipping discourse with me... i don't mind any ship at all unless it's illegal or unhealthy, please don't try competing with me over interests!! i'm very attached to all my interests even if i don't talk about some more than others and i get easily annoyed by things like that. 
 <br>
 
 
