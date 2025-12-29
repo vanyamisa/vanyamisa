@@ -6,7 +6,7 @@ what if i was transfem maya fey from ace attorney like im just saying but what i
 
 
 <div align="center">
-  <img width = "50%" src="https://64.media.tumblr.com/9b57e4643c2ed627d798cc2460b7983c/1725af434c156b82-02/s1280x1920/d50e9ae6a2c2fd459ae9d4cb83c5645be77f0f67.pnj">
+  <img width = "50%" src="https://files.catbox.moe/aa9l67.webp">
 </div>
 <div align="center">too lazy to constantly change my theme bru</div>
 <br>
