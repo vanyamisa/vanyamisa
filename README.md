@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=vanyamisa&label=lets+all+love+vanya&base=110300&abbreviated=true&color=eb4a8e)
+
 please don't ask me to move my spot if i'm in "your spot". no one owns a spot on ponytown and if it bothers you that much, just sit next to me or something at most ^_^ thank you
 
 ![image](https://github.com/user-attachments/assets/c86e8576-28f8-4b5b-9a39-cde07207b485)
