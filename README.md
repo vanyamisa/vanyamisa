@@ -11,7 +11,9 @@ ${\textsf{\color{#3c627d}byi: i have paranoia/trust issues, i also am an easily 
 ${\textsf{\color{#3c627d}dni: basic dni criteria (racists, homophobes, pedophiles, etc), ponytown drama, people under 15, people who argue over ships,}}$ ${\textsf{\color{#3c627d}people who lie about their age, disorder fakers, ex friends unless we've both communicated that we're okay with interacting,}}$ ${\textsf{\color{#3c627d}overly sexual people, people who have drama with my friends, people who try to compete with me over interests}}$
 
 
+${\textsf{\color{#3c627d}some characters i often associate myself with are misa amane, rachel gardner, takiko uchiyama, asuga saintil, mai akasaki,}}$ ${\textsf{\color{#3c627d}arei nageishi, mizi, ena shinonome, sara chidouin, maple, muu kusunoki, mahiru shiina, agnes digital, curren chan, collei, furina.}}$
 
+${\textsf{\color{#3c627d}i don't care if people take inspo off of my ponies :p}}$
 
 
 
