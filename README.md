@@ -1,22 +1,14 @@
 ![](https://komarev.com/ghpvc/?username=vanyamisa&label=lets+all+love+vanya&base=110300&abbreviated=true&color=eb4a8e)
-
-please don't ask me to move my spot if i'm in "your spot". no one owns a spot on ponytown and if it bothers you that much, just sit next to me or something at most ^_^ thank you
-
-![image](https://github.com/user-attachments/assets/c86e8576-28f8-4b5b-9a39-cde07207b485)
-what if i was transfem maya fey from ace attorney like im just saying but what if i was
-
-
-
 <div align="center">
-  <img width = "50%" src="https://files.catbox.moe/aa9l67.webp">
-</div>
-<div align="center">too lazy to constantly change my theme bru</div>
+  <img width = "50%" src="[https://files.catbox.moe/qrwv18.webp]">
+
+![](https://files.catbox.moe/qrwv18.webp)
+
+${\textsf{\color{#3c627d}hai there! this is still a wip, i lowk don't know how to code but i'm working on it}}$
+
 <br>
 
-byi: i'm really shy/awkward and it might take a bit to get me out of my comfort zone! i don't talk much with other people unless i get talked to first, sorry. i'm mainly lurking at the alien stage, project sekai, or genshin area! or i could just be in a totally random spot. i'm mainly with my friends or boyfriend, and i hang out at my partys island a lot. i love rhythm games like bang dream/bandori and project sekai. i also love games like danganronpa and your turn to die. my favorite game right now though currently is umamusume. i have a lot more interests and i'll probably make a rentry dedicating it to all of the ones i can think of, but if you name something i Might know it. thanks for reading!  <br>
-
-dni: basic dni criteria, people who fake disorders, rude/mean people, overly sexual people, under 14, Most danganronpa/hoyoverse fans but i'll still int anyways lowkey BYE, ponytown drama, people who don't like my friends or are on bad terms with them, please... don't have shipping discourse with me... i don't mind any ship at all unless it's illegal or unhealthy, please don't try competing with me over interests!! i'm very attached to all my interests even if i don't talk about some more than others and i get easily annoyed by things like that. 
-<br>
+${\textsf{\color{#3c627d}byi: i have paranoia/trust issues, i also am an easily jealous person. i would really prefer you communicate with me if you have any worries or issues with me than letting it bottle up and eventually become an even bigger problem. i really am understanding and will absolutely accomodate with anything, so please don't feel scared/intimidated! i really like talking with my friends and i love making jokes and i get easily attached. due to past friendships/relationships i am a very on edge person because of my paranoia of events and get extremely anxious. maybe iwc at all times but i don't want to be treated like i'm made of glass. i don't get along with people if they don't have similar interests like i do, since i find it hard to talk to people if we don't share things in common. i really like games like danganronpa (+fanganronpas), umamusume, project sekai, bandori/bang dream, needy streamer overdose, your turn to die, angels of death, ib, doki doki literature club, guilty gear strive, witch's heart (there's a LOT more though). i also really love milgram, alien stage, toilet bound hanako kun, death note, madoka magica. }}$
 
 
 
@@ -24,23 +16,3 @@ dni: basic dni criteria, people who fake disorders, rude/mean people, overly sex
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-![image](https://github.com/user-attachments/assets/620e33f0-c30f-4050-9232-1dccc65e9e11) ![image](https://github.com/user-attachments/assets/d58691ab-036d-4619-b051-ccf92e5cffbe)
-
-
-
-Shes so cute omg i love her
-
-
-![image](https://github.com/user-attachments/assets/644c8fdd-4d4e-4129-ad43-dd9c383242cb) CHERIE.
