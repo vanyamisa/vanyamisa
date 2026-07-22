@@ -1,3 +1,8 @@
+<div align="center">
+  <img width = "50%" src="[https://files.catbox.moe/qrwv18.webp]">
+
+${\textsf{\color{#3c627d}thanks so much!!}}$ [title-town](https://github.com/title-town)
+
 ![](https://komarev.com/ghpvc/?username=vanyamisa&label=lets+all+love+vanya&base=110300&abbreviated=true&color=eb4a8e)
 <div align="center">
   <img width = "50%" src="[https://files.catbox.moe/qrwv18.webp]">
