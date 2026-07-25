@@ -16,7 +16,7 @@ ${\textsf{\color{#3c627d}she/he ,, 17 }}$
 ![](https://64.media.tumblr.com/c61374c8f439672f817e9a40765d85e0/4b9558cbd0422d49-17/s75x75_c1/ff20e777bc60fbdf3f29e8f261c9f89e66ee5420.gifv) ${\textsf{\color{#3c627d}dni: basic dni criteria (racists, homophobes, pedophiles, etc), ponytown drama, people under 15, people who argue over ships,}}$ ${\textsf{\color{#3c627d}people who lie about their age, disorder fakers, ex friends unless we've both communicated that we're okay with interacting,}}$ ${\textsf{\color{#3c627d}overly sexual people, people who have drama with my friends, people who try to compete with me over interests}}$ ![](https://64.media.tumblr.com/c61374c8f439672f817e9a40765d85e0/4b9558cbd0422d49-17/s75x75_c1/ff20e777bc60fbdf3f29e8f261c9f89e66ee5420.gifv)
 
 
-${\textsf{\color{#3c627d}some characters i often associate myself with are misa amane, rachel gardner, takiko uchiyama, asuga saintil, mai akasaki,}}$ ${\textsf{\color{#3c627d}arei nageishi, mizi, ena shinonome, sara chidouin, maple, muu kusunoki, mahiru shiina, agnes digital, curren chan, collei, furina.}}$
+${\textsf{\color{#3c627d}some characters i often associate myself with are misa amane, rachel gardner, takiko uchiyama, asuga saintil, mai akasaki,}}$ ${\textsf{\color{#3c627d}arei nageishi, mizi, ena shinonome, sara chidouin, maple, muu kusunoki, mahiru shiina, agnes digital, curren chan, collei, furina,}}$ ${\textsf{\color{#3c627d}yashiro nene}}$
 
 ${\textsf{\color{#3c627d}i don't care if people take inspo off of my ponies :p}}$
 
