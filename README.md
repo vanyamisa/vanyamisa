@@ -17,7 +17,7 @@ ${\textsf{\color{#3c627d}she/he ,, 17 }}$
 
 
 ${\textsf{\color{#3c627d}some characters i often associate myself with are misa amane, rachel gardner, takiko uchiyama, asuga saintil, mai akasaki,}}$ ${\textsf{\color{#3c627d}arei nageishi, mizi, ena shinonome, sara chidouin, maple, muu kusunoki, mahiru shiina, agnes digital, curren chan, collei, furina,}}$ 
-${\textsf{\color{#3c627d}yashiro nene, noelle holoiday}}$
+${\textsf{\color{#3c627d}yashiro nene, noelle holiday}}$
 
 ${\textsf{\color{#3c627d}i don't care if people take inspo off of my ponies :p}}$
 
